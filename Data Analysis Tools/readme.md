@@ -21,7 +21,7 @@ Psychology
 
 Lisa Dierker
 Professor<br>
-Psychology
+Psychology 
 
 
 Offered by
