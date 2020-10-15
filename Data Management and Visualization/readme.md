@@ -24,3 +24,4 @@ Offered by
 
 Wesleyan University, founded in 1831, is a diverse, energetic liberal arts community where critical thinking and practical idealism go hand in hand. With our distinctive scholar-teacher culture, creative programming, and commitment to interdisciplinary learning, Wesleyan challenges students to explore new ideas and change the world. Our graduates go on to lead and innovate in a wide variety of industries, including government, business, entertainment, and science.
  
+ 
